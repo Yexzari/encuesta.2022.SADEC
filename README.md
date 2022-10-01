@@ -1,0 +1,1 @@
+# encuesta.2022.SADEC
